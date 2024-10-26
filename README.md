@@ -1,0 +1,1 @@
+penyimpanan dengan kode file
